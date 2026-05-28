@@ -1,4 +1,4 @@
-![Aditya Vikram Singh Banner](https://media.licdn.com/dms/image/v2/D4E16AQEpFHLTyTCpkw/profile-displaybackgroundimage-shrink_350_1400/B4EZ3c6c8JHMAY-/0/1777527805341?e=1779321600&v=beta&t=3GS6QuibcmFvXGdXFHqUgSZMRgzIW7tjFpZPiV_5Ilg)
+![Aditya Vikram Singh Banner](https://i.ibb.co/GQzdsK5Z/Banner.png)
 
 <h1 align="center"><b>Hola, soy Paulo Quispe Horna</b><img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="35"></h1>
 
